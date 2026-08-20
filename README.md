@@ -1,2 +1,2 @@
-# eloria-
+# eloria
 hand made jewellery
